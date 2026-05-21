@@ -14,4 +14,4 @@ I am a passionate software and web developer dedicated to building impactful sol
 
 ## 📫 How to Reach Me
 
-*   **LinkedIn:** [https://www.linkedin.com/in/mohammed-alrehaili1/]
+*   **LinkedIn:** [linkedin.com/in/mohammed-alrehaili1/]
